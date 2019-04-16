@@ -1,2 +1,0 @@
-ddrd the new details
-
